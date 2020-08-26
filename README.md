@@ -1,1 +1,0 @@
-# ndako_erp
